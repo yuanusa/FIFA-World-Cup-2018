@@ -1,7 +1,5 @@
 # FIFA-World-Cup-2108
-The winner will be...
 
-Lets begin!
 
 
 
