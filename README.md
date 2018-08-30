@@ -1,8 +1,8 @@
 # FIFA-World-Cup-2108
 The winner will be...
 
+Lets begin!
 
-Sooooo said...
 
 
 ### We will try again for FIFA U-20 Women's World Cup during the mid-Aug-2018.
